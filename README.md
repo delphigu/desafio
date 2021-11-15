@@ -10,5 +10,12 @@ implementado testes unitários
 
 documentação swagger 2
 
+postman está na raíz do projeto
+
+estou a disposição
+Augusto
+
+(61) 98197-2632
+
 
 
